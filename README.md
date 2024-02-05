@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently studying **electrical engineering but I studied computer engineering during 2 years**
 
-- 📫 How to reach me **u can send me a messagge on IG**
+- 📫 How to reach me? **u can send me a messagge on IG**
 
 - 📄 Know about my experiences [www.linkedin.com/in/gabriel-rivas-3316221b8](www.linkedin.com/in/gabriel-rivas-3316221b8)
 
