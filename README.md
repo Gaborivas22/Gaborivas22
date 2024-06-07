@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on [racing steering wheel with Arduino](https://www.instagram.com/p/CmIhFOfgAp4/?hl=es-la)
 
-- 🌱 I’m currently studying **electrical engineering but I studied computer engineering during 2 years**
+- 🌱 I’m currently studying **electrical engineering but I studied computer engineering for 2 years**
 
 - 📫 How to reach me? **u can send me a messagge on IG**
 
